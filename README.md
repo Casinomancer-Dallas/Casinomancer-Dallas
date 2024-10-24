@@ -1,0 +1,7 @@
+- Hi, I’m @Casinomancer-Dallas
+- I’m interested in coding casino games just so i can joke about gambling
+- I’m currently learning python
+- I’m looking to collaborate on nothing yet
+- How to reach me discord:(i gotta remember my user first lol), email: dallaspd2@proton.me
+- Pronouns: he/him/his
+- Fun fact: I am entirely self taught, I never payed enough attention in my actual computer classes to remember anything
