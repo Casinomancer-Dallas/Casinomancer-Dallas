@@ -1,7 +1,7 @@
 - Hi, I’m @Casinomancer-Dallas
 - I’m interested in coding casino games just so i can joke about gambling
 - I’m currently learning python
-- I’m looking to collaborate on nothing yet
-- How to reach me discord:(i gotta remember my user first lol), email: dallaspd2@proton.me
+- I’m looking to collaborate something, idk, ill figure it out
+- How to reach me discord: uhhhhhhdhe_27214, email: dallaspd2@proton.me
 - Pronouns: he/him/his
-- Fun fact: I am entirely self taught, I never payed enough attention in my actual computer classes to remember anything
+- Fun fact: I am entirely self-taught, I never payed enough attention to my actual computer classes to remember anything they taught us, mostly cuz I originally thought computers were for nerds, then again I was also racist and homophobic back then, so people change ig
